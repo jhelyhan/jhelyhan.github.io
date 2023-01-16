@@ -10,8 +10,10 @@ Foods that i love:
 Those are just some of the foods that I love but those are my top 3 faves 
 I love books! here are some of my favorites: 
 ![31755523 _SY540_](https://user-images.githubusercontent.com/122426684/212584892-e856ea7b-8509-4293-a877-248d200017cc.jpg)
-![download](https://user-i![download](https://user-images.githubusercontent.com/122426684/212584940-9cf3f0cb-8947-466c-9728-312b4791119e.jpg)
-mages.githubusercontent.com/122426684/212584921-ef6d3ab3-fe16-4a2e-96da-91524ba44958.jpg)
+
+![images](https://user-images.githubusercontent.com/122426684/212587002-e53da59e-0475-472a-83da-e204e03dd922.jpg)
+
+![images](https://user-images.githubusercontent.com/122426684/212587117-9563c169-6df4-4ac3-af37-d030f06905f6.jpg)
 
 I love all genres but romace and adventures are my thing
 Favorites songs: 
