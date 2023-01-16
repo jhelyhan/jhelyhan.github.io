@@ -1,6 +1,9 @@
 # jhelyhan.github.io
 Jhelian Imperial 
 Hi everyone my name is Jhelian you can call me by my nickname which is yhayhan or jhel, today i would be sharing more about myself so stay tuned and have fun learning more about me! 
+
+![9327e7da553a3111959de04fdf2e2eb4](https://user-images.githubusercontent.com/122426684/212587559-f1e4f550-b89d-4faa-9d0f-a14fb8295dcf.jpg)
+
 Foods that i love: 
 
 ![recipe-image-legacy-id-1001491_11-2e0fa5c](https://user-images.githubusercontent.com/122426684/212584612-5941d72d-1791-4d65-8186-6af699dc0441.jpg)
